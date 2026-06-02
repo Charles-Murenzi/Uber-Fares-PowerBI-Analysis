@@ -191,7 +191,7 @@ These patterns provide clear evidence that Uber's demand and pricing strategy ar
 
 Murenzi Charles
 
-**Instructor:**
+*Instructor:**
 
 Lec.Maniraguha Eric
 
