@@ -191,6 +191,6 @@ These patterns provide clear evidence that Uber's demand and pricing strategy ar
 
 Murenzi Charles
 
- Analytics  
+Analytics  
 AUCA, July 2025
 
