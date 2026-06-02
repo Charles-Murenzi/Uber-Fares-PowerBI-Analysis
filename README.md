@@ -191,8 +191,6 @@ These patterns provide clear evidence that Uber's demand and pricing strategy ar
 
 Murenzi Charles
 
-
-
 Lec.Maniraguha Eric
 
 Course – Introduction to Big Data Analytics  
